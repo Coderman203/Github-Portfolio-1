@@ -1,0 +1,1 @@
+Best questions that I hav encountered in the Wyncode Bootcamp venture are as follows 1. Growth Minset:I consider the ability to focus on the task at hand exepting that life throws at us in the process. Growth Mindset allows me to understand that sucess is not easy and dedicartion is nesesary to commit to the end goal.
